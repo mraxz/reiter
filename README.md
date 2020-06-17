@@ -1,1 +1,1 @@
-# reiter
+# reiter hola a todos!!!!! este es un repositorio sobre tecnologia o bueno es al menos la intencion
